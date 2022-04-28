@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+You should be as soft as a cup of overturned hot milk, and occasionally act like a spoiled child to the world.
 <!--
 **lengjiaxin/lengjiaxin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
